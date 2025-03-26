@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Sadeayx
-- 👀 I’m interested in gaming and nerd stuff
+- 👀 I’m interested in gaming, football and dnd
 - 🌱 I’m currently learning game dev
+- 🎓 I'm also studying applied informatics
 - 📫 How to reach me sad3ayx@gmail.com
 - 😄 Pronouns: he/him
 
